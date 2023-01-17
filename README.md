@@ -1,9 +1,2 @@
-# GB
-EjramGhost 
-App paid version for free 
-
-Ghost blogger
-Ghost blogger
-inaccessible
-inaccessible
-
+# Ghostify
+© 𝐞𝐣𝐫𝐚𝐦𝐆𝐡𝐨𝐬𝐭  
